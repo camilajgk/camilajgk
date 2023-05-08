@@ -1,5 +1,4 @@
 ### Hi there 👋
- °Camila Morais
+Camila Morais 💙
 
-°morais.oliveira.camila@escola.pr.gov.br
 
